@@ -1,1 +1,1 @@
-ARd31
+kanka ne anlatıyon ya
